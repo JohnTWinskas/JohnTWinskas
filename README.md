@@ -9,7 +9,7 @@ JohnTWinskas Sole Proprietorship Templates & Documentation;
 Personal weather damaged Documents recovery & Personal account Recovery;
 Phoneless/homeless technology access Resarch;
 Phoneless/homeless life recovery strategies documentation;
-Time management strategies;
+Time management strategies; Local health care research; wireless communication options research & documentation
 
 - 🌱 I’m currently learning ...
 Google Workspace
