@@ -16,7 +16,7 @@ Time management strategies; Local health care research; wireless communication o
 # 🌱 I’m currently learning ...
 ## Google Workspace
   Google Docs, Spreadsheet, Draw, Calander, Keep, Todo, Slides, Voice, Groups, Bookmarks, Meet;
-##Github;
+## Github;
   Documentation;
   
 ## [FEMA Emergency Management Institute ](https://training.fema.gov/ndemu/schools/emergency-management-institute/);
