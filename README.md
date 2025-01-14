@@ -7,13 +7,14 @@
 
 A few notes:
 
-Google meet, Google Chat, and in Person meetings are available. 
- (Current Location: East Hill neighborhood Pensacola, FL)
-
-Will get back to you as soon as possible if an appointment is scheduled (Typically try to check my email at least a few times a day).
+- Google meet, Google Chat, and in Person meetings are available.
+- Current Location: East Hill neighborhood Pensacola, FL
+- Will get back to you as soon as possible if an appointment is scheduled.
+- Typically try to check my email at least a few times a day.
 
 ### ***Be advised***
-May not have an active phone (May not always have internet or phone access while working). 
+- May not have an active phone.
+- May not always have internet or phone access while working.
 
 Look forward to meeting with you!
 
