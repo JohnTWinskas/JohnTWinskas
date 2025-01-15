@@ -1,3 +1,26 @@
+# Availability and Scheduling a Meeting.
+[Book an Appointment with JohnTWinskas on Google Meet or Google Chat](https://calendar.app.google/UHd7zUWMgbLkD5bd7)
+
+#### Thank you for your interest if setting up an appointment!
+
+
+
+A few notes:
+
+- Google meet, Google Chat, and in Person meetings are available.
+- Current Location: East Hill neighborhood Pensacola, FL
+- Will get back to you as soon as possible if an appointment is scheduled.
+- Typically try to check my email at least a few times a day.
+
+### ***Be advised***
+- May not have an active phone.
+- May not always have internet or phone access while working.
+
+Look forward to meeting with you!
+
+### Respectfully,
+
+###### John T. Winskas
 # Technical Career Summary
 ![John T Winskas Sole Proprietorship Logo Compass-rose with the 4 major arrows labeled as (located at: polar coordinates in degrees 0 degrees at top of page of label; and  associated [Google material-design-icons](https://github.com/google/material-design-icons) to the left of each label) Manufacturing(0); Science (90); Bio-tech (180); and Engineering (270). The arrows pointing to text Rootcause Analysis(0), Microscopy(90), "JohnThomas Winskas Sole Proprietorship"(180), Environmental Health & Safety(270), Minor arrows pointing to Failure Analysis(45), Microbiology(135), Hazardous Waste(225), Statistical Process Control Skills(315) list with vertical text From 0 to 360 in 45 degree increments EDS(22.5), SEM(67.5), Flouresence Imaging(112.5), Hematology(157.5), Lab Safety(202.5),DI Water(247.5), Electro-plating(292.5), CVS(337.5), behind the text and image is a watermark of 20-30% opacity showing an image divided in half showing above and below ground. A manufacturing facility with smoke stacks above ground, with roots growing underground; a Lab below ground with workers busy running experiments; scattered around the image are manufacturing machines machine parts,and documents surround by borders (with unlegible labels) and lines tracing back to the manufacturing facility; and research/lab equipment, computers, biohazard warnings scattered below ground with lines tracing back to the workers performing experiments.](https://github.com/user-attachments/assets/2182cc16-d360-4596-97a9-95008ef124bc)
 
