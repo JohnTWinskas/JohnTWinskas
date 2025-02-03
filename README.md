@@ -1,8 +1,9 @@
 #### John T. Winskas Github Profile
  - ###### [John Thomas Winskas/John Thomas Winskas Sole Proprietorsip Website](https://sites.google.com/view/johnthomaswinskasportfolio/john-thomas-winskas-website?authuser=0)
+ - ###### [John Thomas Winskas/ John Thomas Winskas Sole Proprietorship Github Website](https://github.com/JohnTWinskas/John-Thomas-Winskas-John-Thomas-Winskas-Sole-Proprietorship-Github-Website)
 ![John Thomas Winskas](https://github.com/user-attachments/assets/8f34b1b9-59f2-49f3-900d-5b4712fc2b93)
 
-[John Thomas Winskas/ John Thomas Winskas Sole Proprietorship Github Website](https://github.com/JohnTWinskas/John-Thomas-Winskas-John-Thomas-Winskas-Sole-Proprietorship-Github-Website)
+
 
 JohnWinskas A student in the Nanotechnology Research and Education Center.  Retrieved from http://www.gettyimages.com/detail/148303312 on January 27, 2025, 10:09 PM EST.
 
