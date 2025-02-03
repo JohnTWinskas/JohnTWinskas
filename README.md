@@ -4,16 +4,13 @@
 
 JohnWinskas A student in the Nanotechnology Research and Education Center.  Retrieved from http://www.gettyimages.com/detail/148303312 on January 27, 2025, 10:09 PM EST.
 
-![John Thomas Winskas / John Thomas Winskas Sole Proprietorship QR code business card](https://github.com/user-attachments/assets/5dbcc872-dd5a-4176-b442-1970fad3c62e)
-
-
  - ###### Open to discussing Projects, Sharing Ideas, and Collaboration Opportunities. 
 - ###### If you would like to start a conversation please schedule a meeting!
 ##### Availability and Scheduling a Meeting.
  - ###### [Book an Appointment with JohnTWinskas on Google Meet or Google Chat](https://calendar.app.google/UHd7zUWMgbLkD5bd7)
+![John Thomas Winskas / John Thomas Winskas Sole Proprietorship QR code business card](https://github.com/user-attachments/assets/5dbcc872-dd5a-4176-b442-1970fad3c62e)
 
-##### Recent Events:
-
+#### Recent Events:
  - ###### [January 30, 2025; Attended Event; BRACE Training 2-Community Emergency Response Team (CERT) -6575 North W Street, Pensacola, FL 32505, USA;](https://johntwinskasbloggerblog.blogspot.com/2025/02/attended-event-brace-training-2.html)
  - ###### [January 28, 2025; Attended Event; BRACE Training 1-Community Emergency Response Team (CERT) -6575 North W Street, Pensacola, FL 32505, USA](https://johntwinskasbloggerblog.blogspot.com/2025/01/attended-brace-event-community.html)
  - ###### [January 17th, 2025: Attended Opening Doors Northwest Florida Care Bag stuffing party Jan. 17th-9a.m.-1020N. Warrington Road, Pensacola](https://johntwinskasbloggerblog.blogspot.com/2025/01/attended-event-opening-doors-northwest.html)
