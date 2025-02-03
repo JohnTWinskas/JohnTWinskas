@@ -26,7 +26,7 @@ A few notes:
 - ###### Will try to get back to you as soon as possible if an appointment is scheduled.
 - ###### Typically try to check my email at least a few times a day.
 
-### ***Be advised***
+## ***Be advised***
 
  - ###### May not have an active phone;
  - ###### may not always have internet or phone access while working.
