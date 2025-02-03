@@ -3,7 +3,8 @@
  - ###### Open to discussing Projects, Sharing Ideas, and Collaboration Opportunities. 
 - ###### If you would like to start a conversation please schedule a meeting!
 ##### Availability and Scheduling a Meeting.
- - ###### [Book an Appointment with JohnTWinskas on Google Meet or Google Chat](https://calendar.app.google/UHd7zUWMgbLkD5bd7)[John Thomas Winskas/John Thomas Winskas Sole Proprietorsip Website ](https://sites.google.com/view/johnthomaswinskasportfolio/john-thomas-winskas-website?authuser=0)
+ - ###### [Book an Appointment with JohnTWinskas on Google Meet or Google Chat](https://calendar.app.google/UHd7zUWMgbLkD5bd7)
+ - ###### [John Thomas Winskas/John Thomas Winskas Sole Proprietorsip Website ](https://sites.google.com/view/johnthomaswinskasportfolio/john-thomas-winskas-website?authuser=0)
 
 ##### Recent Events:
 
