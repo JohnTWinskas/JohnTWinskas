@@ -1,6 +1,5 @@
 #### John T. Winskas Github Profile
-- ###### Open to discussing Projects, Sharing Ideas, and Collaboration Opportunities. 
-    ###### [If you would like to start a conversation please schedule a meeting!](https://calendar.app.google/UHd7zUWMgbLkD5bd7)
+
 ##### Availability and Scheduling a Meeting.
  - ###### [Book an Appointment with JohnTWinskas on Google Meet or Google Chat](https://calendar.app.google/UHd7zUWMgbLkD5bd7)
  - ###### [John Thomas Winskas/John Thomas Winskas Sole Proprietorsip Website](https://sites.google.com/view/johnthomaswinskasportfolio/john-thomas-winskas-website?authuser=0)
@@ -27,8 +26,10 @@
  - ###### Thank you for your interest if setting up an appointment! Look forward to meeting with you!
 
 A few notes:
-
-- ###### Google meet, Google Chat, and in Person meetings are available.
+- ###### Open to discussing Projects, Sharing Ideas, and Collaboration Opportunities. 
+    ###### [If you would like to start a conversation please schedule a meeting!](https://calendar.app.google/UHd7zUWMgbLkD5bd7)
+  
+- ###### Google meet, Google Chat, and in Person meetings are available.(https://calendar.app.google/UHd7zUWMgbLkD5bd7)
 - ###### Current Location: East Hill neighborhood Pensacola, FL
 - ###### Will try to get back to you as soon as possible if an appointment is scheduled.
 - ###### Typically try to check my email at least a few times a day.
