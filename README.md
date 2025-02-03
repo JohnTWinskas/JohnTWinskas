@@ -1,6 +1,7 @@
 #### John T. Winskas Github Profile
  - ###### [John Thomas Winskas/John Thomas Winskas Sole Proprietorsip Website ](https://sites.google.com/view/johnthomaswinskasportfolio/john-thomas-winskas-website?authuser=0)
 ![John Thomas Winskas](https://github.com/user-attachments/assets/8f34b1b9-59f2-49f3-900d-5b4712fc2b93)
+JohnWinskas A student in the Nanotechnology Research and Education Center.  Retrieved from http://www.gettyimages.com/detail/148303312 on January 27, 2025, 10:09 PM EST.
  - ###### Open to discussing Projects, Sharing Ideas, and Collaboration Opportunities. 
 - ###### If you would like to start a conversation please schedule a meeting!
 ##### Availability and Scheduling a Meeting.
@@ -15,7 +16,7 @@
 
 
 
-JohnWinskas A student in the Nanotechnology Research and Education Center.  Retrieved from http://www.gettyimages.com/detail/148303312 on January 27, 2025, 10:09 PM EST.
+
 
 
  - ###### Thank you for your interest if setting up an appointment! Look forward to meeting with you!
