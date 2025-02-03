@@ -21,16 +21,16 @@ JohnWinskas A student in the Nanotechnology Research and Education Center.  Retr
 
 A few notes:
 
-- Google meet, Google Chat, and in Person meetings are available.
-- Current Location: East Hill neighborhood Pensacola, FL
-- Will try to get back to you as soon as possible if an appointment is scheduled.
-- Typically try to check my email at least a few times a day.
+- ###### Google meet, Google Chat, and in Person meetings are available.
+- ###### Current Location: East Hill neighborhood Pensacola, FL
+- ###### Will try to get back to you as soon as possible if an appointment is scheduled.
+- ###### Typically try to check my email at least a few times a day.
 
 ### ***Be advised***
 
- - May not have an active phone;
- - may not always have internet or phone access while working.
- - Booking is preferred but non-booked appointments are available if necessary. 
+ - ###### May not have an active phone;
+ - ###### may not always have internet or phone access while working.
+ - ###### Booking is preferred but non-booked appointments are available if necessary. 
 
  ### If you don't get a response in a week or two you could contact:
 ###### Emergency Contacts listed at my website:
