@@ -1,18 +1,21 @@
-###### John T. Winskas Github Profile
-Recent Events:
+#### John T. Winskas Github Profile
+![John Thomas Winskas](https://github.com/user-attachments/assets/8f34b1b9-59f2-49f3-900d-5b4712fc2b93)
+ - ###### Open to discussing Projects, Sharing Ideas, and Collaboration Opportunities. 
+- ###### If you would like to start a conversation please schedule a meeting!
+##### Availability and Scheduling a Meeting.
+ - ###### [Book an Appointment with JohnTWinskas on Google Meet or Google Chat](https://calendar.app.google/UHd7zUWMgbLkD5bd7)[John Thomas Winskas/John Thomas Winskas Sole Proprietorsip Website ](https://sites.google.com/view/johnthomaswinskasportfolio/john-thomas-winskas-website?authuser=0)
+
+##### Recent Events:
 
  - ###### [January 30, 2025; Attended Event; BRACE Training 2-Community Emergency Response Team (CERT) -6575 North W Street, Pensacola, FL 32505, USA;](https://johntwinskasbloggerblog.blogspot.com/2025/02/attended-event-brace-training-2.html)
  - ###### [January 28, 2025; Attended Event; BRACE Training 1-Community Emergency Response Team (CERT) -6575 North W Street, Pensacola, FL 32505, USA](https://johntwinskasbloggerblog.blogspot.com/2025/01/attended-brace-event-community.html)
  - ###### [January 17th, 2025: Attended Opening Doors Northwest Florida Care Bag stuffing party Jan. 17th-9a.m.-1020N. Warrington Road, Pensacola](https://johntwinskasbloggerblog.blogspot.com/2025/01/attended-event-opening-doors-northwest.html)
  - ###### [January 16th 2025; Attended Event; Fire Corps. Information Session Q&A Session January 16, 2025 at 6:00 PM – 8:00 PM-6575 North W Street, Pensacola, FL 32505](https://johntwinskasbloggerblog.blogspot.com/2025/01/january-16th-2025-attended-event-fire.html)
 
-![John Thomas Winskas](https://github.com/user-attachments/assets/8f34b1b9-59f2-49f3-900d-5b4712fc2b93)
+
 
 JohnWinskas A student in the Nanotechnology Research and Education Center.  Retrieved from http://www.gettyimages.com/detail/148303312 on January 27, 2025, 10:09 PM EST.
- - ###### Open to discussing Projects, Sharing Ideas, and Collaboration Opportunities. 
-- ###### If you would like to start a conversation please schedule a meeting!
-## Availability and Scheduling a Meeting.
-[Book an Appointment with JohnTWinskas on Google Meet or Google Chat](https://calendar.app.google/UHd7zUWMgbLkD5bd7)
+
 
  - ###### Thank you for your interest if setting up an appointment! Look forward to meeting with you!
 
