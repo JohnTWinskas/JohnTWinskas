@@ -79,7 +79,8 @@ A few notes:
   Google Docs, Spreadsheet, Draw, Calander, Keep, Todo, Slides, Voice, Groups, Bookmarks, Meet;
 ###### Github;
   Documentation; Tutorials
-  
+###### CERT Volunteer Training
+
 ###### [FEMA Emergency Management Institute ](https://training.fema.gov/ndemu/schools/emergency-management-institute/);
   ###  Independent Study Courses - https://training.fema.gov/is/;
      #### Current Courses;
@@ -92,6 +93,8 @@ A few notes:
 Phoneless technology access research & problem solving;
 ### 🤔 I’m looking for help with ...;
 ### 💬 Ask me about ...;
+Anything, Professional experience in nanotechnology, Biomedical Research, Cyber Security, Dishwashing, prep-cook, Line-cook, Documentation Authoring, Pensacola, Escambia County emergency preparedness Resources.
 ### 📫 How to reach me: ...;
+JohnTWinskas@gmail.com
 ### 😄 Pronouns: ...;
 ### ⚡ Fun fact: ...;
