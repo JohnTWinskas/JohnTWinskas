@@ -30,9 +30,6 @@
  - ###### [January 17th, 2025: Attended Opening Doors Northwest Florida Care Bag stuffing party Jan. 17th-9a.m.-1020N. Warrington Road, Pensacola](https://johntwinskasbloggerblog.blogspot.com/2025/01/attended-event-opening-doors-northwest.html)
  - ###### [January 16th 2025; Attended Event; Fire Corps. Information Session Q&A Session January 16, 2025 at 6:00 PM – 8:00 PM-6575 North W Street, Pensacola, FL 32505](https://johntwinskasbloggerblog.blogspot.com/2025/01/january-16th-2025-attended-event-fire.html)
 
-
-![John Thomas Winskas / John Thomas Winskas Sole Proprietorship QR code business card](https://github.com/user-attachments/assets/5dbcc872-dd5a-4176-b442-1970fad3c62e)
-
  - ###### Thank you for your interest if setting up an appointment! Look forward to meeting with you!
 
 ## A few notes:
@@ -97,13 +94,15 @@
 
 Set-up Github and completed Github Tutorials. started to add content/completed NREC projects from 2012-2017 to Github.
 
-- ###### Resume & Cover Letter Review; Cover Letter Formatting; Resume formatting; Wrote Brace Cover letter; Reviewed & edited resume: Created Graphical Career summary document and slides while creating Documentation Procedure/ outline based on FEMA documentation standards ; integrated Qr codes into resume & and Graphical career summary. 
+- #### Resume & Cover Letter Review;
+- ###### Cover Letter Formatting; Resume formatting; Wrote Brace Cover letter; Reviewed & edited resume: Created Graphical Career summary document and slides while creating Documentation Procedure/ outline based on FEMA documentation standards ; integrated Qr codes into resume & and Graphical career summary. 
 
 #### John Thomas Winskas Sole Proprietorship Brand;
 
  - ###### Created John T Winskas Sole Proprietorship Brand & Logo; Created Johntwinskas@gmail.com; Johntwinskas@gmail.com-GitHub. Created Johntwinskas-Github; Created johnThomasWinskas Portfolio website for career/applications.
 
-Started Volunteer BRACE/CERT Volunteer Training with BRACE FireCorp and CERT;  attended BRACE FireCorp Training and CERT Training; 
+#### Started Volunteer BRACE/CERT Volunteer Training with BRACE FireCorp and CERT;  attended BRACE FireCorp Training and CERT Training; 
+
 ### 🌱 I’m currently learning ...
 ###### Google Workspace
   Google Docs, Spreadsheet, Draw, Calander, Keep, Todo, Slides, Voice, Groups, Bookmarks, Meet;
