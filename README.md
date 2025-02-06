@@ -13,7 +13,6 @@
 
 ### Upcoming Events:
  - ###### [Brace CERT Training: -6575 N W St, Pensacola, FL 32505, United States](https://www.zeffy.com/en-US/ticketing/community-emergency-response-team-cert-training)
- - 
  - Thursday, February 6, 2025 6 pm - 9:30 pm
  - Saturday, February 8, 2025 8 am - 4 pm
 
