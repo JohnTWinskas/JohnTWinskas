@@ -12,13 +12,13 @@
 ![John Thomas Winskas / John Thomas Winskas Sole Proprietorship QR code business card](https://github.com/user-attachments/assets/5dbcc872-dd5a-4176-b442-1970fad3c62e)
 
 ### Upcoming Events:
- - ###### [Brace CERT Training: -6575 N W St, Pensacola, FL 32505, United States](https://www.zeffy.com/en-US/ticketing/community-emergency-response-team-cert-training)
+###### [Brace CERT Training: -6575 N W St, Pensacola, FL 32505, United States](https://www.zeffy.com/en-US/ticketing/community-emergency-response-team-cert-training)
  - Thursday, February 6, 2025 6 pm - 9:30 pm
  - Saturday, February 8, 2025 8 am - 4 pm
 
- - ###### Fire Corps Training-6575 North W Street, Pensacola, FL 32505, USA
+###### Fire Corps Training-6575 North W Street, Pensacola, FL 32505, USA
 
-February 8, 2025 at 9:00 AM – 1:00 PM
+February 8, 2025 at 9:00 AM – 1:00 PM-Possible Shedule Conflict
 February 22, 2025 at 9:00 AM – 1:00 PM
 
 
