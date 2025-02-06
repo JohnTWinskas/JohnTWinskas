@@ -18,7 +18,8 @@
 
 ###### Fire Corps Training-6575 North W Street, Pensacola, FL 32505, USA
 
-February 8, 2025 at 9:00 AM – 1:00 PM-Possible Shedule Conflict
+February 8, 2025 at 9:00 AM – 1:00 PM-Possible Schedule Conflict
+
 February 22, 2025 at 9:00 AM – 1:00 PM
 
 
