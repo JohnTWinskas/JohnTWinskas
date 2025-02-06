@@ -5,13 +5,13 @@
 
 ![John Thomas Winskas](https://github.com/user-attachments/assets/8f34b1b9-59f2-49f3-900d-5b4712fc2b93)
 ###### JohnWinskas A student in the Nanotechnology Research and Education Center.  Retrieved from http://www.gettyimages.com/detail/148303312 on January 27, 2025, 10:09 PM EST.
-##### Availability and Scheduling a Meeting.
+## Availability and Scheduling a Meeting.
  - ###### [Book an Appointment with JohnTWinskas on Google Meet or Google Chat](https://calendar.app.google/UHd7zUWMgbLkD5bd7)
  - ###### [John Thomas Winskas/ John Thomas Winskas Sole Proprietorship Github Website](https://github.com/JohnTWinskas/John-Thomas-Winskas-John-Thomas-Winskas-Sole-Proprietorship-Github-Website)
 
-![John Thomas Winskas / John Thomas Winskas Sole Proprietorship QR code business card](https://github.com/user-attachments/assets/5dbcc872-dd5a-4176-b442-1970fad3c62e)
 
-### Upcoming Events:
+
+## Upcoming Events:
 ###### [Brace CERT Training: -6575 N W St, Pensacola, FL 32505, United States](https://www.zeffy.com/en-US/ticketing/community-emergency-response-team-cert-training)
  - Thursday, February 6, 2025 6 pm - 9:30 pm
  - Saturday, February 8, 2025 8 am - 4 pm
@@ -22,7 +22,7 @@
  - February 22, 2025 at 9:00 AM – 1:00 PM
 
 
-#### Recent Events:
+## Recent Events:
  - ###### [February 04, 2025; Attended Event; BRACE Training 2-Community Emergency Response Team (CERT) -6575 North W Street, Pensacola, FL 32505, USA;](https://johntwinskasbloggerblog.blogspot.com/2025/02/february-04-2025-attended-event-brace.html)
  - ###### [February 04, 2025; Point-in-Time Count 2025 Planning Meeting -6575 North W Street, Pensacola, FL 32505, USA;](https://johntwinskasbloggerblog.blogspot.com/2025/02/febuary-04-2025-attended-microsoft.html)
  - ###### [January 30, 2025; Attended Event; BRACE Training 2-Community Emergency Response Team (CERT) -6575 North W Street, Pensacola, FL 32505, USA;](https://johntwinskasbloggerblog.blogspot.com/2025/02/attended-event-brace-training-2.html)
@@ -30,6 +30,8 @@
  - ###### [January 17th, 2025: Attended Opening Doors Northwest Florida Care Bag stuffing party Jan. 17th-9a.m.-1020N. Warrington Road, Pensacola](https://johntwinskasbloggerblog.blogspot.com/2025/01/attended-event-opening-doors-northwest.html)
  - ###### [January 16th 2025; Attended Event; Fire Corps. Information Session Q&A Session January 16, 2025 at 6:00 PM – 8:00 PM-6575 North W Street, Pensacola, FL 32505](https://johntwinskasbloggerblog.blogspot.com/2025/01/january-16th-2025-attended-event-fire.html)
 
+
+![John Thomas Winskas / John Thomas Winskas Sole Proprietorship QR code business card](https://github.com/user-attachments/assets/5dbcc872-dd5a-4176-b442-1970fad3c62e)
 
  - ###### Thank you for your interest if setting up an appointment! Look forward to meeting with you!
 
@@ -81,6 +83,27 @@
  -  healthcare research;
  -  wireless communication options research & documentation;
 
+- #### Indigent public Resources research for;
+- ###### Escambia County Homeless Resources; Phoneless Resources; Lifeline; USAC;Collected homeless resource documents & pamphlets; Visited FL Community Health Facility; Collected Government resource contact Information.
+
+- #### Recovering accounts for John Thomas Winskas Resulting in document account/identity recovery document:
+- ###### Document/ Link: Project 30-Account Recovery Project-John T. Winskas, January 2025, Version 0.1
+
+- #### Publication documentation Reviewed & wrote Documentation outline based on FEMA documents. 
+- ###### Document/Link: Developing and Maintaining Emergency Operations Document Template v0.3 - Google Docs 
+
+#### Time management 
+- ###### learned/ practiced with Google Workspace; Implemented Calendar/time management system; Implemented Calendar Scheduling system/time tracking system when necessary; document revision tracking tracks time. Implemented task/ objective list based on ICS courses and tried to implement ICS system and strategies to Personal document organization; Document/Link: [John Thomas Winskas/John Thomas Winskas sole Proprietorship Calendar](https://calendar.google.com/calendar/u/0?cid=am9obnR3aW5za2FzQGdtYWlsLmNvbQ); John Thomas Winskas/ John Thomas Winsks Sole Proprietorship Google Chat/ Google Meet](https://calendar.app.google/Hc5TciZy8cjB7v7E6).
+
+Set-up Github and completed Github Tutorials. started to add content/completed NREC projects from 2012-2017 to Github.
+
+- ###### Resume & Cover Letter Review; Cover Letter Formatting; Resume formatting; Wrote Brace Cover letter; Reviewed & edited resume: Created Graphical Career summary document and slides while creating Documentation Procedure/ outline based on FEMA documentation standards ; integrated Qr codes into resume & and Graphical career summary. 
+
+#### John Thomas Winskas Sole Proprietorship Brand;
+
+ - ###### Created John T Winskas Sole Proprietorship Brand & Logo; Created Johntwinskas@gmail.com; Johntwinskas@gmail.com-GitHub. Created Johntwinskas-Github; Created johnThomasWinskas Portfolio website for career/applications.
+
+Started Volunteer BRACE/CERT Volunteer Training with BRACE FireCorp and CERT;  attended BRACE FireCorp Training and CERT Training; 
 ### 🌱 I’m currently learning ...
 ###### Google Workspace
   Google Docs, Spreadsheet, Draw, Calander, Keep, Todo, Slides, Voice, Groups, Bookmarks, Meet;
