@@ -13,11 +13,13 @@
 
 ### Upcoming Events:
  - ###### [Brace CERT Training: -6575 N W St, Pensacola, FL 32505, United States](https://www.zeffy.com/en-US/ticketing/community-emergency-response-team-cert-training)
- - Tuesday, February 4, 2025 6 pm - 9:30 pm
+ - 
  - Thursday, February 6, 2025 6 pm - 9:30 pm
  - Saturday, February 8, 2025 8 am - 4 pm
 
 #### Recent Events:
+ - ###### [February 04, 2025; Attended Event; BRACE Training 2-Community Emergency Response Team (CERT) -6575 North W Street, Pensacola, FL 32505, USA;](https://johntwinskasbloggerblog.blogspot.com/2025/02/february-04-2025-attended-event-brace.html)
+ - ###### [February 04, 2025; Point-in-Time Count 2025 Planning Meeting -6575 North W Street, Pensacola, FL 32505, USA;](https://johntwinskasbloggerblog.blogspot.com/2025/02/febuary-04-2025-attended-microsoft.html)
  - ###### [January 30, 2025; Attended Event; BRACE Training 2-Community Emergency Response Team (CERT) -6575 North W Street, Pensacola, FL 32505, USA;](https://johntwinskasbloggerblog.blogspot.com/2025/02/attended-event-brace-training-2.html)
  - ###### [January 28, 2025; Attended Event; BRACE Training 1-Community Emergency Response Team (CERT) -6575 North W Street, Pensacola, FL 32505, USA](https://johntwinskasbloggerblog.blogspot.com/2025/01/attended-brace-event-community.html)
  - ###### [January 17th, 2025: Attended Opening Doors Northwest Florida Care Bag stuffing party Jan. 17th-9a.m.-1020N. Warrington Road, Pensacola](https://johntwinskasbloggerblog.blogspot.com/2025/01/attended-event-opening-doors-northwest.html)
