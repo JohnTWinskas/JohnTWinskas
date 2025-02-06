@@ -15,13 +15,11 @@
  - ###### [Brace CERT Training: -6575 N W St, Pensacola, FL 32505, United States](https://www.zeffy.com/en-US/ticketing/community-emergency-response-team-cert-training)
  - 
  - Thursday, February 6, 2025 6 pm - 9:30 pm
- - 
  - Saturday, February 8, 2025 8 am - 4 pm
 
  - ###### Fire Corps Training-6575 North W Street, Pensacola, FL 32505, USA
- - 
-February 8, 2025 at 9:00 AM – 1:00 PM
 
+February 8, 2025 at 9:00 AM – 1:00 PM
 February 22, 2025 at 9:00 AM – 1:00 PM
 
 
