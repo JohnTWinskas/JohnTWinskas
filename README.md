@@ -33,7 +33,7 @@
 
  - ###### Thank you for your interest if setting up an appointment! Look forward to meeting with you!
 
-A few notes:
+## A few notes:
 - ###### Open to discussing Projects, Sharing Ideas, and Collaboration Opportunities. 
     ###### [If you would like to start a conversation please schedule a meeting!](https://calendar.app.google/UHd7zUWMgbLkD5bd7)
   
