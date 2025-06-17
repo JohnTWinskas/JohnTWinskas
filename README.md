@@ -8,6 +8,7 @@
 ## Availability and Scheduling a Meeting.
  - ###### [Book an Appointment with JohnTWinskas on Google Meet or Google Chat](https://calendar.app.google/UHd7zUWMgbLkD5bd7)
  - ###### [John Thomas Winskas/ John Thomas Winskas Sole Proprietorship Github Website](https://github.com/JohnTWinskas/John-Thomas-Winskas-John-Thomas-Winskas-Sole-Proprietorship-Github-Website)
+![image](https://github.com/user-attachments/assets/581cc148-9238-4a5d-8c22-cb9919f8eef4)
 
 
 
