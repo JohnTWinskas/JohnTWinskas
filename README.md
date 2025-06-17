@@ -12,8 +12,6 @@
 
 ![John Thomas Winskas- 2025](https://github.com/user-attachments/assets/581cc148-9238-4a5d-8c22-cb9919f8eef4) 
 
-![John Thomas Winskas-2012](https://github.com/user-attachments/assets/ca13fb5f-9fa4-4282-bb58-2e2b722174b0)
-
 
 
 
